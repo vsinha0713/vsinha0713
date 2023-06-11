@@ -6,5 +6,5 @@
 - or else you can Dm me on instagram id- v_sinha0713 🗯️
 
 <!---
-vsinha0713/vsinha0713 is a ✨ special ✨ repository because you came to read all of it <3
+vsinha0713 is a ✨ special ✨ repository because you came to read all of it <3
 ---> and & and ...you know what vsinha0713 is a 💎special💎 repository: its README.md will appear on your profile!
